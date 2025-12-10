@@ -8,8 +8,8 @@ Salom! Bu loyiha PUBG Mobile o'yinchilari uchun UC (Unknown Cash) sotib olish do
 - 100% xavfsiz.
 
 ## Aloqa
-- Telegram: @sizning_username
-- Telefon: +998 XX XXX XX XX
+- Telegram: @prepar_now
+- Telefon: +79964419609
 
 ## Qanday sotib olish mumkin?
 1. Biz bilan bog'laning.
